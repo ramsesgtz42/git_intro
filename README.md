@@ -1,1 +1,2 @@
-Ramses Gutierrez
+Alberto Ramses Gutierrez
+gutiealb@oregonstate.edu
